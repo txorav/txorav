@@ -1,7 +1,7 @@
 # Hello World #
 ## TXO_R here ##
 ### StrawBerry CEO ###
-**i am TXO_R :
+**i am TXO_R :**
 - developer
 - singer
 - designer
