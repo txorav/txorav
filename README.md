@@ -12,4 +12,4 @@
 - ***Free Palestine*****
 **thanks for reading**
 
-**hackathons are gdff skills arent f---r--e--e**
+**hackathons sucks**
