@@ -12,4 +12,4 @@
 - ***Free Palestine*****
 **thanks for reading**
 
-**hackathons are waste of time go make money your dev skills arent free**
+**hackathons are gdff skills arent f---r--e--e**
